@@ -1,2 +1,2 @@
 # Cheel-Uree
-cheel uree kawa ura game android
+cheel uree kawwa ura game android
